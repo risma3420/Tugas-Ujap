@@ -1,2 +1,2 @@
 # Tugas-Ujap
-Latihan ujsp 1-6
+Latihan ujsp Hari Pertama Dan Ke Dua
